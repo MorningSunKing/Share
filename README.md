@@ -7,3 +7,6 @@ https://pan.xunlei.com/s/VOgg0L1SEBDv19UJTepGF3jbA1?pwd=kwsn
 # 电影
 ## 浪潮
 https://pan.xunlei.com/s/VOgg0ZD0hioEWbeWgGlVHhGeA1?pwd=m5m5#
+# 学习资料
+## 机器人SLAM导航：核心技术与实战（课件&教学视频）
+https://pan.baidu.com/s/1fV8rmEDWzep_PwTeFi-I0w?pwd=3rfe
