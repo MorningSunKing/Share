@@ -9,6 +9,8 @@ https://pan.quark.cn/s/f7de08526aa0
 https://pan.xunlei.com/s/VOgg0L1SEBDv19UJTepGF3jbA1?pwd=kwsn
 # 电影
 ## 浪潮
+https://pan.baidu.com/s/1fNmMQatJqfy4EZGO3EkjRQ?pwd=rcua
+
 https://pan.quark.cn/s/8d5c1aecf750
 
 https://pan.xunlei.com/s/VOgg0ZD0hioEWbeWgGlVHhGeA1?pwd=m5m5#
