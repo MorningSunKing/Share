@@ -7,6 +7,7 @@ https://pan.baidu.com/s/1gDbNigh2vnqVSzGSQA200w?pwd=fa3i
 https://pan.quark.cn/s/f7de08526aa0
 
 https://pan.xunlei.com/s/VOgg0L1SEBDv19UJTepGF3jbA1?pwd=kwsn
+
 # 电影
 ## 浪潮
 https://pan.baidu.com/s/1fNmMQatJqfy4EZGO3EkjRQ?pwd=rcua
@@ -14,6 +15,14 @@ https://pan.baidu.com/s/1fNmMQatJqfy4EZGO3EkjRQ?pwd=rcua
 https://pan.quark.cn/s/8d5c1aecf750
 
 https://pan.xunlei.com/s/VOgg0ZD0hioEWbeWgGlVHhGeA1?pwd=m5m5#
+
 # 学习资料
 ## 机器人SLAM导航：核心技术与实战（课件&教学视频）
 https://pan.baidu.com/s/1fV8rmEDWzep_PwTeFi-I0w?pwd=3rfe
+
+# 综艺
+## 脱口秀大会第二季（2019）
+https://pan.baidu.com/s/1gYm3qfiGk-ivTH5k_fESiQ?pwd=4he4
+
+## 脱口秀大会第三季（2020）
+https://pan.baidu.com/s/1ic32EN07rbMlYUjsrBpcCA?pwd=73ha
