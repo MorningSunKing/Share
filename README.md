@@ -16,6 +16,13 @@ https://pan.quark.cn/s/8d5c1aecf750
 
 https://pan.xunlei.com/s/VOgg0ZD0hioEWbeWgGlVHhGeA1?pwd=m5m5#
 
+# 电视剧
+## 创世纪1地产风云
+https://pan.baidu.com/s/1TfebV7JDWmRYGSljQOfJLw?pwd=muib
+
+## 创世纪2天地有情
+https://pan.baidu.com/s/1vscYWt_W9tsogrnn3Bi6uw?pwd=wmey
+
 # 学习资料
 ## 机器人SLAM导航：核心技术与实战（课件&教学视频）
 https://pan.baidu.com/s/1fV8rmEDWzep_PwTeFi-I0w?pwd=3rfe
