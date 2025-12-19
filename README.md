@@ -20,8 +20,16 @@ https://pan.xunlei.com/s/VOgg0ZD0hioEWbeWgGlVHhGeA1?pwd=m5m5#
 ## 创世纪1地产风云
 https://pan.baidu.com/s/1TfebV7JDWmRYGSljQOfJLw?pwd=muib
 
+https://pan.quark.cn/s/97b86e445741
+
+https://pan.xunlei.com/s/VOgou3EgOyhGbW7IT9Ht56urA1?pwd=yk5w#
+
 ## 创世纪2天地有情
 https://pan.baidu.com/s/1vscYWt_W9tsogrnn3Bi6uw?pwd=wmey
+
+https://pan.quark.cn/s/af5b1f268ad5
+
+https://pan.xunlei.com/s/VOgou9V-2L6m2C-FmgPjC-hlA1?pwd=jzfw#
 
 # 学习资料
 ## 机器人SLAM导航：核心技术与实战（课件&教学视频）
