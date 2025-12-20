@@ -31,6 +31,13 @@ https://pan.quark.cn/s/af5b1f268ad5
 
 https://pan.xunlei.com/s/VOgou9V-2L6m2C-FmgPjC-hlA1?pwd=jzfw#
 
+## 大时代
+https://pan.baidu.com/s/1qPEEg7pxu9a26jSNPgxBdQ?pwd=qe27
+
+https://pan.quark.cn/s/6ee58ece3f13
+
+https://pan.xunlei.com/s/VOgt_OzK2L6m2C-FmgPlhRReA1?pwd=awei#
+
 # 学习资料
 ## 机器人SLAM导航：核心技术与实战（课件&教学视频）
 https://pan.baidu.com/s/1fV8rmEDWzep_PwTeFi-I0w?pwd=3rfe
