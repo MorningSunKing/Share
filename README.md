@@ -17,6 +17,13 @@ https://pan.quark.cn/s/8d5c1aecf750
 https://pan.xunlei.com/s/VOgg0ZD0hioEWbeWgGlVHhGeA1?pwd=m5m5#
 
 # 电视剧
+## 寻秦记
+https://pan.baidu.com/s/1_b0-kep5BiKAInc-0x5xiQ?pwd=rttw
+
+https://pan.quark.cn/s/edb39719bc7f
+
+https://pan.xunlei.com/s/VOh4jDxZJYMWIdc4c14MQvJgA1?pwd=6i6b#
+
 ## 创世纪1地产风云
 https://pan.baidu.com/s/1TfebV7JDWmRYGSljQOfJLw?pwd=muib
 
