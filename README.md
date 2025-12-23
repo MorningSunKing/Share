@@ -49,6 +49,13 @@ https://pan.xunlei.com/s/VOgt_OzK2L6m2C-FmgPlhRReA1?pwd=awei#
 ## 机器人SLAM导航：核心技术与实战（课件&教学视频）
 https://pan.baidu.com/s/1fV8rmEDWzep_PwTeFi-I0w?pwd=3rfe
 
+## 以日为鉴衰退时代生存指南
+https://pan.baidu.com/s/1RQUcYfU4OpyiMnoq0SjOlA?pwd=361e
+
+https://pan.quark.cn/s/7d8c2014d7c1
+
+https://pan.xunlei.com/s/VOh9_Xfn2jVLwfxpcPfaDiP_A1?pwd=twsg#
+
 # 综艺
 ## 脱口秀大会第二季（2019）
 https://pan.baidu.com/s/1gYm3qfiGk-ivTH5k_fESiQ?pwd=4he4
