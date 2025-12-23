@@ -63,6 +63,13 @@ https://pan.quark.cn/s/b528a0e4143d
 
 https://pan.xunlei.com/s/VOh9j5CU1NsFO6D8meunnnAUA1?pwd=bnzv#
 
+## 三体有声书
+https://pan.baidu.com/s/1jZuOD6f5r0k2f5VUBm2L1w?pwd=k9ey
+
+https://pan.quark.cn/s/3ec3b21c52c1
+
+https://pan.xunlei.com/s/VOh9rt0D1OhoTLlbiFtzdyrBA1?pwd=n54a#
+
 # 综艺
 ## 脱口秀大会第二季（2019）
 https://pan.baidu.com/s/1gYm3qfiGk-ivTH5k_fESiQ?pwd=4he4
