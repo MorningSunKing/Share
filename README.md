@@ -105,6 +105,13 @@ https://pan.quark.cn/s/df9d33ca9217
 
 https://pan.xunlei.com/s/VOhDpBYtpn91SxDmujJJCJCxA1?pwd=r4ny#
 
+## 专利布局（第2版）
+https://pan.baidu.com/s/1lYu9B_qlBVmc2-b9Ivw3JA?pwd=vmd1
+
+https://pan.quark.cn/s/a0f6ba94ae23
+
+https://pan.xunlei.com/s/VOhEzPTnjLTdg_OJc9AccNqfA1?pwd=ify4#
+
 # 综艺
 ## 脱口秀大会第二季（2019）
 https://pan.baidu.com/s/1gYm3qfiGk-ivTH5k_fESiQ?pwd=4he4
