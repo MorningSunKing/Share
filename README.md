@@ -112,6 +112,13 @@ https://pan.quark.cn/s/a0f6ba94ae23
 
 https://pan.xunlei.com/s/VOhEzPTnjLTdg_OJc9AccNqfA1?pwd=ify4#
 
+## 涉外律师法律英语
+https://pan.baidu.com/s/1EjHUYlwZxVJr5NmfZUBm8Q?pwd=867w
+
+https://pan.quark.cn/s/af1146835a9c
+
+https://pan.xunlei.com/s/VOhF1zqChmL3M1K_V7RHUV30A1?pwd=fank#
+
 # 综艺
 ## 脱口秀大会第二季（2019）
 https://pan.baidu.com/s/1gYm3qfiGk-ivTH5k_fESiQ?pwd=4he4
