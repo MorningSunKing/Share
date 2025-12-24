@@ -77,6 +77,27 @@ https://pan.quark.cn/s/f9da87d2706a
 
 https://pan.xunlei.com/s/VOhDNXb_1ZO2tqs8uH1Gf15JA1?pwd=d3ne#
 
+## 以案说法
+https://pan.baidu.com/s/1J0sYpfuW6ItpN2f9x0-RKg?pwd=3h77
+
+https://pan.quark.cn/s/1657a4aea80a
+
+https://pan.xunlei.com/s/VOhDdXXJa_xFzF3CGUkbiFoAA1?pwd=tepe#
+
+## 专利申请文件撰写实战教程——逻辑、态度、实践
+https://pan.baidu.com/s/1oKNWktEzBwryd5n1ipVJYg?pwd=advn
+
+https://pan.quark.cn/s/1656c3d720bf
+
+https://pan.xunlei.com/s/VOhDdlpXep08et5POLnla14VA1?pwd=9uyn#
+
+## 专利审查意见答复实战教程——规范、态度、实践
+https://pan.baidu.com/s/1t6iVVbOkfU6O5WJkSaLNEg?pwd=8vw3
+
+https://pan.quark.cn/s/a887b8800c2e
+
+https://pan.xunlei.com/s/VOhDe0t9O7ScXuLpoBEJY_oGA1?pwd=qc6n#
+
 # 综艺
 ## 脱口秀大会第二季（2019）
 https://pan.baidu.com/s/1gYm3qfiGk-ivTH5k_fESiQ?pwd=4he4
