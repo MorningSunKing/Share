@@ -70,6 +70,13 @@ https://pan.quark.cn/s/3ec3b21c52c1
 
 https://pan.xunlei.com/s/VOh9rt0D1OhoTLlbiFtzdyrBA1?pwd=n54a#
 
+## IP之道 30家国内一线创新公司的知识产权是如何运营的
+https://pan.baidu.com/s/15Za2_hEllbIN00FaQWX07w?pwd=bs1p
+
+https://pan.quark.cn/s/f9da87d2706a
+
+https://pan.xunlei.com/s/VOhDNXb_1ZO2tqs8uH1Gf15JA1?pwd=d3ne#
+
 # 综艺
 ## 脱口秀大会第二季（2019）
 https://pan.baidu.com/s/1gYm3qfiGk-ivTH5k_fESiQ?pwd=4he4
