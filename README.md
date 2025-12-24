@@ -98,6 +98,13 @@ https://pan.quark.cn/s/a887b8800c2e
 
 https://pan.xunlei.com/s/VOhDe0t9O7ScXuLpoBEJY_oGA1?pwd=qc6n#
 
+## 专利侵权风险防控-FTO分析实务指南
+https://pan.baidu.com/s/1VlYZALTHfcQ2GbJFTv7Omg?pwd=5qyw
+
+https://pan.quark.cn/s/df9d33ca9217
+
+https://pan.xunlei.com/s/VOhDpBYtpn91SxDmujJJCJCxA1?pwd=r4ny#
+
 # 综艺
 ## 脱口秀大会第二季（2019）
 https://pan.baidu.com/s/1gYm3qfiGk-ivTH5k_fESiQ?pwd=4he4
