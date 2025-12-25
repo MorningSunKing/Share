@@ -119,6 +119,13 @@ https://pan.quark.cn/s/af1146835a9c
 
 https://pan.xunlei.com/s/VOhF1zqChmL3M1K_V7RHUV30A1?pwd=fank#
 
+## 跟着审查员学检索
+https://pan.baidu.com/s/1uCZzbhwE1GKv5u9H7HpHDw?pwd=a3f6
+
+https://pan.quark.cn/s/3baedaed42f0
+
+https://pan.xunlei.com/s/VOhIjN1qeTLi6ro6uRhiKb1GA1?pwd=8zmx#
+
 # 综艺
 ## 脱口秀大会第二季（2019）
 https://pan.baidu.com/s/1gYm3qfiGk-ivTH5k_fESiQ?pwd=4he4
