@@ -133,6 +133,13 @@ https://pan.quark.cn/s/757f8f8a6ca9
 
 https://pan.xunlei.com/s/VOhImsxhhmL3M1K_V7RJNBLQA1?pwd=3aff#
 
+## 中国专利法详解
+https://pan.baidu.com/s/1prMnR375Lqc8kKp4boOthQ?pwd=qy9r
+
+https://pan.quark.cn/s/0c78a2b2f26d
+
+https://pan.xunlei.com/s/VOhIwc5Ma_xFzF3CGUkeY9StA1?pwd=hggz#
+
 # 综艺
 ## 脱口秀大会第二季（2019）
 https://pan.baidu.com/s/1gYm3qfiGk-ivTH5k_fESiQ?pwd=4he4
