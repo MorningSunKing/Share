@@ -126,6 +126,13 @@ https://pan.quark.cn/s/3baedaed42f0
 
 https://pan.xunlei.com/s/VOhIjN1qeTLi6ro6uRhiKb1GA1?pwd=8zmx#
 
+## 专利分析——检索、可视化与报告撰写
+https://pan.baidu.com/s/15YflODjU283TVR6J0dmybg?pwd=3myn
+
+https://pan.quark.cn/s/757f8f8a6ca9
+
+https://pan.xunlei.com/s/VOhImsxhhmL3M1K_V7RJNBLQA1?pwd=3aff#
+
 # 综艺
 ## 脱口秀大会第二季（2019）
 https://pan.baidu.com/s/1gYm3qfiGk-ivTH5k_fESiQ?pwd=4he4
