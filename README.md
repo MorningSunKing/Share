@@ -98,6 +98,13 @@ https://pan.quark.cn/s/a887b8800c2e
 
 https://pan.xunlei.com/s/VOhDe0t9O7ScXuLpoBEJY_oGA1?pwd=qc6n#
 
+## 专利实务热点、难点实战教程——学习、总结、应用
+https://pan.baidu.com/s/15eBLUTj2gdF5qY_OF8wCsA?pwd=tccg
+
+https://pan.quark.cn/s/ebbbcb747705
+
+https://pan.xunlei.com/s/VOhOuoJnEW_jXrn9tB_NTcsYA1?pwd=w58t#
+
 ## 专利侵权风险防控-FTO分析实务指南
 https://pan.baidu.com/s/1VlYZALTHfcQ2GbJFTv7Omg?pwd=5qyw
 
