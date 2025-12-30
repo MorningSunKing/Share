@@ -154,6 +154,13 @@ https://pan.quark.cn/s/b556bde2b5c2
 
 https://pan.xunlei.com/s/VOhcR7mcTBEU2VzasinR6645A1?pwd=bzyi#
 
+## 专利激情在燃烧
+https://pan.baidu.com/s/1Uq1fDFz-pF4tpoF4mgavCQ?pwd=xwjv
+
+https://pan.quark.cn/s/22f925af4c65
+
+https://pan.xunlei.com/s/VOhhWAvUTBQpcyt7Lae7SMhdA1?pwd=4yks#
+
 # 综艺
 ## 脱口秀大会第二季（2019）
 https://pan.baidu.com/s/1gYm3qfiGk-ivTH5k_fESiQ?pwd=4he4
