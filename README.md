@@ -45,6 +45,13 @@ https://pan.quark.cn/s/6ee58ece3f13
 
 https://pan.xunlei.com/s/VOgt_OzK2L6m2C-FmgPlhRReA1?pwd=awei#
 
+## 大秦帝国之裂变（海外版）
+https://pan.baidu.com/s/1S9X7X9lPWqGqwuQ_anp9Og?pwd=k6mn
+
+https://pan.quark.cn/s/c21c00125ad7
+
+https://pan.xunlei.com/s/VOhirwEETBQpcyt7Lae8Cc1JA1?pwd=j8uz#
+
 # 学习资料
 ## 机器人SLAM导航：核心技术与实战（课件&教学视频）
 https://pan.baidu.com/s/1fV8rmEDWzep_PwTeFi-I0w?pwd=3rfe
