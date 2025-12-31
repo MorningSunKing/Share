@@ -52,6 +52,13 @@ https://pan.quark.cn/s/c21c00125ad7
 
 https://pan.xunlei.com/s/VOhirwEETBQpcyt7Lae8Cc1JA1?pwd=j8uz#
 
+## 大秦帝国之纵横
+https://pan.baidu.com/s/1jCEmKi3q7V0EAltVQFs1zA?pwd=cc5c
+
+https://pan.quark.cn/s/90cef89e72d4
+
+https://pan.xunlei.com/s/VOhntq7NDHn7GzXEIKoAzQd8A1?pwd=j5ax#
+
 # 学习资料
 ## 机器人SLAM导航：核心技术与实战（课件&教学视频）
 https://pan.baidu.com/s/1fV8rmEDWzep_PwTeFi-I0w?pwd=3rfe
