@@ -16,6 +16,13 @@ https://pan.quark.cn/s/8d5c1aecf750
 
 https://pan.xunlei.com/s/VOgg0ZD0hioEWbeWgGlVHhGeA1?pwd=m5m5#
 
+## 731
+https://pan.baidu.com/s/1vN6dfdO0CRbf1B18kcaFPA?pwd=jfu1
+
+https://pan.quark.cn/s/44fd9d522cb2
+
+https://pan.xunlei.com/s/VOht6c-hLADyJCFAZ-sm16iQA1?pwd=e7dw#
+
 # 电视剧
 ## 寻秦记
 https://pan.baidu.com/s/1_b0-kep5BiKAInc-0x5xiQ?pwd=rttw
