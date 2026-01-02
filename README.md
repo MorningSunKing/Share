@@ -26,6 +26,11 @@ https://pan.xunlei.com/s/VOht6c-hLADyJCFAZ-sm16iQA1?pwd=e7dw#
 ## 疯狂动物城2
 https://pan.baidu.com/s/1oL_2jF4Ols0-PECfaGT5cA?pwd=mspv
 
+## 刺杀小说家2
+https://pan.baidu.com/s/1UMLW22HFBu4CvWfNiJx8Pw?pwd=mvev
+
+https://pan.quark.cn/s/94adce35d8ef
+
 # 电视剧
 ## 寻秦记
 https://pan.baidu.com/s/1_b0-kep5BiKAInc-0x5xiQ?pwd=rttw
