@@ -34,6 +34,13 @@ https://pan.quark.cn/s/c476928d330b
 ## 刺杀小说家2
 https://pan.baidu.com/s/1UMLW22HFBu4CvWfNiJx8Pw?pwd=mvev
 
+## 即兴谋杀
+https://pan.baidu.com/s/1mqD80fFiYxW513BcE4JANQ?pwd=k2jx
+
+https://pan.quark.cn/s/c3bd4a48561c
+
+https://pan.xunlei.com/s/VOi36oAQt-GeewqiwDBNNdAOA1?pwd=j6a2#
+
 # 电视剧
 ## 寻秦记
 https://pan.baidu.com/s/1_b0-kep5BiKAInc-0x5xiQ?pwd=rttw
