@@ -77,6 +77,13 @@ https://pan.quark.cn/s/90cef89e72d4
 
 https://pan.xunlei.com/s/VOhntq7NDHn7GzXEIKoAzQd8A1?pwd=j5ax#
 
+## 风筝（未删减，51集）
+https://pan.baidu.com/s/13u9qe6JMbPas-Kr4AgUNeQ?pwd=ymxz
+
+https://pan.quark.cn/s/07c30978c933
+
+https://pan.xunlei.com/s/VOi1r546MRujDdmMR4eJKGa3A1?pwd=tdi3#
+
 # 学习资料
 ## 机器人SLAM导航：核心技术与实战（课件&教学视频）
 https://pan.baidu.com/s/1fV8rmEDWzep_PwTeFi-I0w?pwd=3rfe
