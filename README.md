@@ -41,6 +41,11 @@ https://pan.quark.cn/s/c3bd4a48561c
 
 https://pan.xunlei.com/s/VOi36oAQt-GeewqiwDBNNdAOA1?pwd=j6a2#
 
+## 浪浪人生
+https://pan.baidu.com/s/1zXzXhQG0FAoLP0JQa31ajw?pwd=v549
+
+https://pan.quark.cn/s/4bacd8167593
+
 # 电视剧
 ## 寻秦记
 https://pan.baidu.com/s/1_b0-kep5BiKAInc-0x5xiQ?pwd=rttw
