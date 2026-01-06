@@ -31,6 +31,11 @@ https://pan.baidu.com/s/1IhehU6BPnOD-M6gBjPbEkA?pwd=btip
 
 https://pan.quark.cn/s/c476928d330b
 
+## 名侦探柯南：独眼的残像
+https://pan.baidu.com/s/1NEeu337_taY7TXhEAjMdVw?pwd=84yf
+
+
+
 ## 刺杀小说家2
 https://pan.baidu.com/s/1UMLW22HFBu4CvWfNiJx8Pw?pwd=mvev
 
