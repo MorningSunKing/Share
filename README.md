@@ -53,6 +53,9 @@ https://pan.baidu.com/s/1zXzXhQG0FAoLP0JQa31ajw?pwd=v549
 
 https://pan.quark.cn/s/4bacd8167593
 
+## 惊天魔盗团3
+https://pan.baidu.com/s/17CONBZutqZFSdB2RC3xRbA?pwd=dfba
+
 # 电视剧
 ## 寻秦记
 https://pan.baidu.com/s/1_b0-kep5BiKAInc-0x5xiQ?pwd=rttw
