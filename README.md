@@ -56,6 +56,13 @@ https://pan.quark.cn/s/4bacd8167593
 ## 惊天魔盗团3
 https://pan.baidu.com/s/17CONBZutqZFSdB2RC3xRbA?pwd=dfba
 
+## 鬼灭之刃：无限城篇 第一章 猗窝座再袭
+https://pan.baidu.com/s/180uzsa3ww_mPcGGVkJ6VEQ?pwd=estc
+
+https://pan.quark.cn/s/dc99306e6e92
+
+https://pan.xunlei.com/s/VOiLWncDud8b9aFLSLFeiLpKA1?pwd=bsq7#
+
 # 电视剧
 ## 寻秦记
 https://pan.baidu.com/s/1_b0-kep5BiKAInc-0x5xiQ?pwd=rttw
