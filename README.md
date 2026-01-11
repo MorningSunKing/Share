@@ -61,6 +61,16 @@ https://pan.baidu.com/s/180uzsa3ww_mPcGGVkJ6VEQ?pwd=estc
 
 https://pan.xunlei.com/s/VOiLWncDud8b9aFLSLFeiLpKA1?pwd=bsq7#
 
+## 震耳欲聋
+https://pan.baidu.com/s/1oACxpJYzKJzOQnN21tGY2w?pwd=5ea8
+
+https://pan.quark.cn/s/87500b93b117
+
+## 大风杀
+https://pan.baidu.com/s/1o3QywluHebfbadKYPu1o7g?pwd=4tdy
+
+https://pan.quark.cn/s/e239e1fdf096
+
 # 电视剧
 ## 寻秦记
 https://pan.baidu.com/s/1_b0-kep5BiKAInc-0x5xiQ?pwd=rttw
@@ -110,6 +120,13 @@ https://pan.baidu.com/s/13u9qe6JMbPas-Kr4AgUNeQ?pwd=ymxz
 https://pan.quark.cn/s/07c30978c933
 
 https://pan.xunlei.com/s/VOi1r546MRujDdmMR4eJKGa3A1?pwd=tdi3#
+
+## 风筝（高清，46集）
+https://pan.baidu.com/s/1CvCMvNnVMpAn0QvuirVCDg?pwd=mi53
+
+https://pan.quark.cn/s/1f3bafa80ea6
+
+https://pan.xunlei.com/s/VOifegwtl3LqXcF7m_nxNBZaA1?pwd=df6z#
 
 # 学习资料
 ## 机器人SLAM导航：核心技术与实战（课件&教学视频）
