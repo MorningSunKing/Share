@@ -24,7 +24,9 @@ https://pan.quark.cn/s/44fd9d522cb2
 https://pan.xunlei.com/s/VOht6c-hLADyJCFAZ-sm16iQA1?pwd=e7dw#
 
 ## 疯狂动物城2
-https://pan.baidu.com/s/1oL_2jF4Ols0-PECfaGT5cA?pwd=mspv
+https://pan.baidu.com/s/1A16n9eQ_bKoPYt62_SDcKw?pwd=fsc4
+
+https://pan.quark.cn/s/deba8ccc6c10
 
 ## 刺杀小说家
 https://pan.baidu.com/s/1IhehU6BPnOD-M6gBjPbEkA?pwd=btip
