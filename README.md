@@ -246,6 +246,13 @@ https://pan.quark.cn/s/22f925af4c65
 
 https://pan.xunlei.com/s/VOhhWAvUTBQpcyt7Lae7SMhdA1?pwd=4yks#
 
+## 企业知识产权管理：操作实务与法律风险防范（第二版）
+https://pan.baidu.com/s/1imOcGpEHwjCcSSGLgWoHjQ?pwd=61k6
+
+https://pan.quark.cn/s/5f2f1335b407
+
+https://pan.xunlei.com/s/VOj-dafYdw13oS_NppXJHSmXA1?pwd=rxhh#
+
 # 综艺
 ## 脱口秀大会第二季（2019）
 https://pan.baidu.com/s/1gYm3qfiGk-ivTH5k_fESiQ?pwd=4he4
