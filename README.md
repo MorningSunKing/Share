@@ -253,6 +253,20 @@ https://pan.quark.cn/s/5f2f1335b407
 
 https://pan.xunlei.com/s/VOj-dafYdw13oS_NppXJHSmXA1?pwd=rxhh#
 
+## 2024年度专利复审无效十大案例解读
+https://pan.baidu.com/s/1u-iYomfn8y9CaKhqEc1C2A?pwd=bamp
+
+https://pan.quark.cn/s/973e5fc14917
+
+https://pan.xunlei.com/s/VOj0Bcg60bPxb6xIe4A90zEUA1?pwd=927z#
+
+## 境外展会知识产权纠纷应对指南(2024年版)
+https://pan.baidu.com/s/19tRG0kCPqN5Ri-LN6Vhj4g?pwd=4svm
+
+https://pan.quark.cn/s/99f706ebdc38
+
+https://pan.xunlei.com/s/VOj0BflADDZZVI2XQXIBDWt_A1?pwd=mmjd#
+
 # 综艺
 ## 脱口秀大会第二季（2019）
 https://pan.baidu.com/s/1gYm3qfiGk-ivTH5k_fESiQ?pwd=4he4
