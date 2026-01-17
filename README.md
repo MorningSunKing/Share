@@ -1,6 +1,7 @@
 # 游戏
 ## 英雄连2勇气传说
 https://pan.baidu.com/s/1ARbkh0HVVZoN6H-SougP6g?pwd=2e38
+
 ## 魔兽争霸Ⅲ冰封王座
 https://pan.baidu.com/s/1gDbNigh2vnqVSzGSQA200w?pwd=fa3i
 
@@ -72,6 +73,11 @@ https://pan.quark.cn/s/87500b93b117
 https://pan.baidu.com/s/1o3QywluHebfbadKYPu1o7g?pwd=4tdy
 
 https://pan.quark.cn/s/e239e1fdf096
+
+## 风林火山
+https://pan.baidu.com/s/1ahLVe0nIPNxmBGkIntRuXQ?pwd=htb5
+
+https://pan.quark.cn/s/c8729333f227
 
 # 电视剧
 ## 寻秦记
