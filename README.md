@@ -273,6 +273,11 @@ https://pan.quark.cn/s/99f706ebdc38
 
 https://pan.xunlei.com/s/VOj0BflADDZZVI2XQXIBDWt_A1?pwd=mmjd#
 
+## 李诞脱口秀工作手册
+https://pan.baidu.com/s/1ylGFoNtkmrZuy9exV3GLjw?pwd=9qbx
+
+https://pan.quark.cn/s/f470ee8e11aa
+
 # 综艺
 ## 脱口秀大会第二季（2019）
 https://pan.baidu.com/s/1gYm3qfiGk-ivTH5k_fESiQ?pwd=4he4
