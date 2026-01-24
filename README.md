@@ -79,6 +79,11 @@ https://pan.baidu.com/s/1ahLVe0nIPNxmBGkIntRuXQ?pwd=htb5
 
 https://pan.quark.cn/s/c8729333f227
 
+## 情圣3
+https://pan.baidu.com/s/1iBFkSBE_KX8rqozmmBi_4A?pwd=h7dn
+
+https://pan.quark.cn/s/0d40ed8bacbf
+
 # 电视剧
 ## 寻秦记
 https://pan.baidu.com/s/1_b0-kep5BiKAInc-0x5xiQ?pwd=rttw
