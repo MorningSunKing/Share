@@ -82,6 +82,9 @@ https://pan.quark.cn/s/c8729333f227
 ## 情圣3
 https://pan.baidu.com/s/1iBFkSBE_KX8rqozmmBi_4A?pwd=h7dn
 
+## 三滴血
+https://pan.baidu.com/s/1TsrfWp-4hQwfkfJx4_2mpQ?pwd=vi2p
+
 # 电视剧
 ## 寻秦记
 https://pan.baidu.com/s/1_b0-kep5BiKAInc-0x5xiQ?pwd=rttw
@@ -141,8 +144,6 @@ https://pan.xunlei.com/s/VOifegwtl3LqXcF7m_nxNBZaA1?pwd=df6z#
 
 ## 太平年
 https://pan.baidu.com/s/1JFwejETQnATYB_cb1_lwag?pwd=hzui
-
-https://pan.quark.cn/s/0bb9e45ab385
 
 # 学习资料
 ## 机器人SLAM导航：核心技术与实战（课件&教学视频）
