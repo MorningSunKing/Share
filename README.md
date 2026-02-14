@@ -85,6 +85,9 @@ https://pan.baidu.com/s/1iBFkSBE_KX8rqozmmBi_4A?pwd=h7dn
 ## 三滴血
 https://pan.baidu.com/s/1TsrfWp-4hQwfkfJx4_2mpQ?pwd=vi2p
 
+## 你行！你上！
+https://pan.baidu.com/s/14pJLhN-8MChB1ENSjqF0Yw?pwd=x6ut
+
 # 电视剧
 ## 寻秦记
 https://pan.baidu.com/s/1_b0-kep5BiKAInc-0x5xiQ?pwd=rttw
