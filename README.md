@@ -97,6 +97,9 @@ https://pan.baidu.com/s/1XfY7I5yCJTsSWNNeOwCR2Q?pwd=cqqy
 ## 东北警察故事3
 https://pan.baidu.com/s/1QFykztK64sSOtk9hGh5gnQ?pwd=vtsf
 
+## 得闲谨制
+https://pan.baidu.com/s/1GwWSFBlCdxlUnWMUVOitww?pwd=ttwn
+
 # 电视剧
 ## 寻秦记
 https://pan.baidu.com/s/1_b0-kep5BiKAInc-0x5xiQ?pwd=rttw
