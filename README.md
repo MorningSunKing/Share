@@ -115,6 +115,9 @@ https://pan.baidu.com/s/1W_by7mz-yxqjP14BseDC8w?pwd=fimm
 ## 不过是上班
 https://pan.baidu.com/s/1qfJCD_K3qZZhLLhd8wU9zg?pwd=grdh
 
+## 我的朋友安德烈
+https://pan.baidu.com/s/1CqdiPLS5vdkFO1JveUEc6Q?pwd=eq61
+
 # 电视剧
 ## 寻秦记
 https://pan.baidu.com/s/1_b0-kep5BiKAInc-0x5xiQ?pwd=rttw
