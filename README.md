@@ -127,6 +127,12 @@ https://pan.baidu.com/s/1fUmR-CIFdgc7yEfl-ssLlg?pwd=3a2b
 ## 寄生虫（蓝光黑白版）
 https://pan.baidu.com/s/1ZpG82A7Pp2xo06LGEUMuAQ?pwd=p85k
 
+## 危险关系
+https://pan.baidu.com/s/1of_hVGuaIOHxfe2RbmTrNw?pwd=g5zd
+
+## 罗曼蒂克消亡史
+https://pan.baidu.com/s/1FkzKJLTcnLje6NQ91Xxq5w?pwd=mm2y
+
 # 电视剧
 ## 寻秦记
 https://pan.baidu.com/s/1_b0-kep5BiKAInc-0x5xiQ?pwd=rttw
