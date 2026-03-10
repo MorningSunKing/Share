@@ -121,6 +121,12 @@ https://pan.baidu.com/s/1CqdiPLS5vdkFO1JveUEc6Q?pwd=eq61
 ## 用武之地
 https://pan.baidu.com/s/1xASRDmXG2Yuwszsfg0rl-A?pwd=75kh
 
+## 寄生虫
+https://pan.baidu.com/s/1fUmR-CIFdgc7yEfl-ssLlg?pwd=3a2b
+
+## 寄生虫（蓝光黑白版）
+https://pan.baidu.com/s/1ZpG82A7Pp2xo06LGEUMuAQ?pwd=p85k
+
 # 电视剧
 ## 寻秦记
 https://pan.baidu.com/s/1_b0-kep5BiKAInc-0x5xiQ?pwd=rttw
