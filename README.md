@@ -211,6 +211,24 @@ https://pan.xunlei.com/s/VOifegwtl3LqXcF7m_nxNBZaA1?pwd=df6z#
 ## 太平年
 https://pan.baidu.com/s/1JFwejETQnATYB_cb1_lwag?pwd=hzui
 
+## 长安的荔枝
+https://pan.baidu.com/s/1GfQsF2jLaV0-R9e2BD2IpA?pwd=6r3s
+
+## 天道
+https://pan.baidu.com/s/1D_nZmPeWEI66Km_-sBbHzQ?pwd=ubgx
+
+## 沉默的荣耀
+https://pan.baidu.com/s/1C_ri_9a1UcTI3yUqGvI3kQ?pwd=5cxa
+
+## 除恶
+https://pan.baidu.com/s/1k-vZ7ezDKjmSaZn_ct0H4A?pwd=s2fk
+
+## 夜色正浓
+https://pan.baidu.com/s/1wuHD6f25N1JkB0iPzEHO3Q?pwd=3wkv
+
+## 潜伏
+https://pan.baidu.com/s/1-L2OCPzuMSgAYMrxp4H0Dw?pwd=9j2a
+
 # 学习资料
 ## 机器人SLAM导航：核心技术与实战（课件&教学视频）
 https://pan.baidu.com/s/1fV8rmEDWzep_PwTeFi-I0w?pwd=3rfe
