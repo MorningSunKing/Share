@@ -371,6 +371,9 @@ https://pan.baidu.com/s/1ylGFoNtkmrZuy9exV3GLjw?pwd=9qbx
 
 https://pan.quark.cn/s/f470ee8e11aa
 
+## 中国专利侵权判定诉讼实务指南
+https://pan.baidu.com/s/1ulkRd6ycrnSqjXgo0qFrqA?pwd=ygcd
+
 # 综艺
 ## 脱口秀大会第二季（2019）
 https://pan.baidu.com/s/1gYm3qfiGk-ivTH5k_fESiQ?pwd=4he4
