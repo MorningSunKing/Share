@@ -229,6 +229,12 @@ https://pan.baidu.com/s/1wuHD6f25N1JkB0iPzEHO3Q?pwd=3wkv
 ## 潜伏
 https://pan.baidu.com/s/1-L2OCPzuMSgAYMrxp4H0Dw?pwd=9j2a
 
+## 重返狼群
+https://pan.baidu.com/s/19s-BxTzx2NkoEKQp4IatIQ?pwd=v47a
+
+## 成瘾剂量
+https://pan.baidu.com/s/1ZX-zlaCZrSQ1fnLTk7tXgg?pwd=a68d
+
 # 学习资料
 ## 机器人SLAM导航：核心技术与实战（课件&教学视频）
 https://pan.baidu.com/s/1fV8rmEDWzep_PwTeFi-I0w?pwd=3rfe
