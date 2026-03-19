@@ -244,6 +244,9 @@ https://pan.baidu.com/s/19s-BxTzx2NkoEKQp4IatIQ?pwd=v47a
 ## 成瘾剂量
 https://pan.baidu.com/s/1ZX-zlaCZrSQ1fnLTk7tXgg?pwd=a68d
 
+## 纯真年代的爱情
+https://pan.baidu.com/s/1A3E-h531LZMhCORUfpIUrQ?pwd=wdv2
+
 # 学习资料
 ## 机器人SLAM导航：核心技术与实战（课件&教学视频）
 https://pan.baidu.com/s/1fV8rmEDWzep_PwTeFi-I0w?pwd=3rfe
