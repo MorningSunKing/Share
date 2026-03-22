@@ -160,6 +160,9 @@ https://pan.baidu.com/s/1HjcJgAC9i5I6uhSg1-JhOg?pwd=h6yc
 ## 目中无人2
 https://pan.baidu.com/s/1cApL3CBObLgRyGzuZ0Rz6Q?pwd=33qy
 
+## 扫恶
+https://pan.baidu.com/s/1sJX4CV05Ja3G9Tzcnd7zhQ?pwd=phk9
+
 # 电视剧
 ## 寻秦记
 https://pan.baidu.com/s/1_b0-kep5BiKAInc-0x5xiQ?pwd=rttw
