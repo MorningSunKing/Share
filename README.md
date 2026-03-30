@@ -1,3 +1,6 @@
+# 欢迎扫码关注
+./Share/微信二维码.jpg
+
 # 游戏
 ## 英雄连2勇气传说
 https://pan.baidu.com/s/1ARbkh0HVVZoN6H-SougP6g?pwd=2e38
