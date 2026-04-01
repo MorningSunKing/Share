@@ -259,6 +259,12 @@ https://pan.baidu.com/s/1A3E-h531LZMhCORUfpIUrQ?pwd=wdv2
 ## 逐玉
 https://pan.baidu.com/s/17aFYA52AunvVc-tHWvBYsw?pwd=8nub
 
+## 东周列国：春秋篇
+https://pan.baidu.com/s/1yiMEzIvaCAB6lbDDv021gw?pwd=jyrs
+
+## 东周列国·战国篇
+https://pan.baidu.com/s/1cljh_uiRqWmtDTsfjP7WPA?pwd=8d5z
+
 # 学习资料
 ## 机器人SLAM导航：核心技术与实战（课件&教学视频）
 https://pan.baidu.com/s/1fV8rmEDWzep_PwTeFi-I0w?pwd=3rfe
