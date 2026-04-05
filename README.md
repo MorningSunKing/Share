@@ -265,6 +265,12 @@ https://pan.baidu.com/s/1yiMEzIvaCAB6lbDDv021gw?pwd=jyrs
 ## 东周列国·战国篇
 https://pan.baidu.com/s/1cljh_uiRqWmtDTsfjP7WPA?pwd=8d5z
 
+## 正义女神-国语
+https://pan.baidu.com/s/1PBW-7frS1dwgGrgR2lPiWQ?pwd=7nwp
+
+## 正义女神-粤语
+https://pan.baidu.com/s/16gXUVpS69WUekrqvBVJ_fA?pwd=sf7q
+
 # 学习资料
 ## 机器人SLAM导航：核心技术与实战（课件&教学视频）
 https://pan.baidu.com/s/1fV8rmEDWzep_PwTeFi-I0w?pwd=3rfe
@@ -409,6 +415,12 @@ https://pan.quark.cn/s/f470ee8e11aa
 
 ## 中国专利侵权判定诉讼实务指南
 https://pan.baidu.com/s/1ulkRd6ycrnSqjXgo0qFrqA?pwd=ygcd
+
+## Kubernetes权威指南 第6版上
+https://pan.baidu.com/s/13pXfmOCnv1_OlE_AsF69sw?pwd=cer4
+
+## Kubernetes权威指南 第6版下
+https://pan.baidu.com/s/1MOdY6YDGdiEM3-cAKGr6wQ?pwd=7y8q
 
 # 综艺
 ## 脱口秀大会第二季（2019）
