@@ -422,6 +422,9 @@ https://pan.baidu.com/s/13pXfmOCnv1_OlE_AsF69sw?pwd=cer4
 ## Kubernetes权威指南 第6版下
 https://pan.baidu.com/s/1MOdY6YDGdiEM3-cAKGr6wQ?pwd=7y8q
 
+## 企业出海数据合规指导书来源：腾讯云计算（北京）有限公司
+https://pan.baidu.com/s/1GD5fLXsauTH8R_2bvtRtaA?pwd=qez9
+
 # 综艺
 ## 脱口秀大会第二季（2019）
 https://pan.baidu.com/s/1gYm3qfiGk-ivTH5k_fESiQ?pwd=4he4
