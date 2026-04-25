@@ -464,6 +464,9 @@ https://pan.baidu.com/s/1j7ya3ROOgTsHWyqhRnkixA?pwd=fnfq
 ## 技术创新方法——TRIZ理论及应用
 https://pan.baidu.com/s/1cqTyTbJg6gAQny7Y8YntIA?pwd=dami
 
+## 中国建设工程施工合同法律全书 词条释义与实务指引（第二版）
+https://pan.baidu.com/s/1CgXYKt_mhTAj7VRP5RiK3Q?pwd=v96w
+
 # 综艺
 ## 脱口秀大会第二季（2019）
 https://pan.baidu.com/s/1gYm3qfiGk-ivTH5k_fESiQ?pwd=4he4
