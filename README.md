@@ -434,9 +434,6 @@ https://pan.baidu.com/s/1irnpeyZUHd7888TsHuOldA?pwd=8qff
 ## 法律谈判策略与技巧
 https://pan.baidu.com/s/1w-mPLP69JT3Lmz1O-M3GPQ?pwd=9pku
 
-## 法律谈判策略与技巧
-https://pan.baidu.com/s/1gzlDbMbP1s3HzVex8utu4w?pwd=yn4p
-
 ## 数据合规 入门、实战与进阶
 https://pan.baidu.com/s/1MWf2pMckMAymp1gD6fL2WA?pwd=i2hw
 
