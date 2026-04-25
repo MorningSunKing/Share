@@ -425,6 +425,48 @@ https://pan.baidu.com/s/1MOdY6YDGdiEM3-cAKGr6wQ?pwd=7y8q
 ## 企业出海数据合规指导书来源：腾讯云计算（北京）有限公司
 https://pan.baidu.com/s/1GD5fLXsauTH8R_2bvtRtaA?pwd=qez9
 
+## 性心理学
+https://pan.baidu.com/s/1VYu74bW4NkEXHaIz4DF7bQ?pwd=n7jv
+
+## 氢燃料电池全球专利布局与风险应对
+https://pan.baidu.com/s/1irnpeyZUHd7888TsHuOldA?pwd=8qff
+
+## 法律谈判策略与技巧
+https://pan.baidu.com/s/1w-mPLP69JT3Lmz1O-M3GPQ?pwd=9pku
+
+## 法律谈判策略与技巧
+https://pan.baidu.com/s/1gzlDbMbP1s3HzVex8utu4w?pwd=yn4p
+
+## 数据合规 入门、实战与进阶
+https://pan.baidu.com/s/1MWf2pMckMAymp1gD6fL2WA?pwd=i2hw
+
+## 电商企业数据合规业务处理指引
+https://pan.baidu.com/s/11jbNVdyVHWwQSjwsc_TN9Q?pwd=fgps
+
+## 深圳市企业数据合规指引
+https://pan.baidu.com/s/1bbxo5ENqXleKx1GjddKDMQ?pwd=61rj
+
+## 创新算法——TRIZ、系统创新和技术创造力
+https://pan.baidu.com/s/17FtEH6CxtqWGaYw2KQkAcQ?pwd=9ux9
+
+## 创新40法
+https://pan.baidu.com/s/1sf7QTZ2KGWz0iub9O7TNnw?pwd=px2u
+
+## TRIZ打开创新之门的金钥匙Ⅰ
+https://pan.baidu.com/s/1IPPbviOM1FPWnyug-wRMXA?pwd=d8g9
+
+## TRIZ工程题解及专利申请实战
+https://pan.baidu.com/s/1kCSmX6BlEh3X3UrKlsK7jQ?pwd=1m4k
+
+## 创新之道——TRIZ理论与实战精要
+https://pan.baidu.com/s/1VOrZ_UavYxXzAbZU4utUaA?pwd=rutt
+
+## 短剧漫剧版权保护操作指引v1.0
+https://pan.baidu.com/s/1j7ya3ROOgTsHWyqhRnkixA?pwd=fnfq
+
+## 技术创新方法——TRIZ理论及应用
+https://pan.baidu.com/s/1cqTyTbJg6gAQny7Y8YntIA?pwd=dami
+
 # 综艺
 ## 脱口秀大会第二季（2019）
 https://pan.baidu.com/s/1gYm3qfiGk-ivTH5k_fESiQ?pwd=4he4
