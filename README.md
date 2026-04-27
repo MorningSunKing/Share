@@ -271,6 +271,12 @@ https://pan.baidu.com/s/1PBW-7frS1dwgGrgR2lPiWQ?pwd=7nwp
 ## 正义女神-粤语
 https://pan.baidu.com/s/16gXUVpS69WUekrqvBVJ_fA?pwd=sf7q
 
+## 士兵突击
+https://pan.baidu.com/s/1kqXDAAtbdwgHnOY3oeUQDw?pwd=jyey
+
+## 八千里路云和月
+https://pan.baidu.com/s/1PlrKhRIyXUgj5O9ZanjKsA?pwd=11qw
+
 # 学习资料
 ## 机器人SLAM导航：核心技术与实战（课件&教学视频）
 https://pan.baidu.com/s/1fV8rmEDWzep_PwTeFi-I0w?pwd=3rfe
