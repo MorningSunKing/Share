@@ -193,6 +193,9 @@ https://pan.baidu.com/s/1Xd2JOII_nRxfio3aRTJTqA?pwd=w477
 ## 惊蛰无声
 https://pan.baidu.com/s/1V0gJWdSrgsoJbTu2BPgyvg?pwd=xsda
 
+## 天才游戏
+https://pan.baidu.com/s/1QOMQDdb7bbgY4P1FN5I_sg?pwd=q2fn
+
 ## 一个男人和一个女人
 https://pan.baidu.com/s/1VlH3ia_exTKxIRVWXqLpTQ?pwd=hefr
 
