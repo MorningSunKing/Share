@@ -169,6 +169,36 @@ https://pan.baidu.com/s/1sJX4CV05Ja3G9Tzcnd7zhQ?pwd=phk9
 ## 请求救援
 https://pan.baidu.com/s/1E4Eyh05zXUwprAZ734ZtNw?pwd=jbe4
 
+## 飞行家
+https://pan.baidu.com/s/1uFLO_v0NuiLmzWlB5xIyPg?pwd=wn3f
+
+## 呼啸山庄-韩版
+https://pan.baidu.com/s/1IZ8T4UD9Zm9fCU_PGSesLg?pwd=d4gc
+
+## 空房间
+https://pan.baidu.com/s/1G1kYeaonqPn8quhPMCeRJA?pwd=twyn
+
+## 拼桌
+https://pan.baidu.com/s/1GvSDQdlB0iL4xVzeYIVSGw?pwd=2apg
+
+## 追恶
+https://pan.baidu.com/s/1-sCwi6wJY1uFNw2NdJDFYA?pwd=yc8h
+
+## 熊猫计划之部落奇遇记
+https://pan.baidu.com/s/1g3EoxC829IE1p1zYO15LGQ?pwd=y2mp
+
+## 飞驰人生3
+https://pan.baidu.com/s/1Xd2JOII_nRxfio3aRTJTqA?pwd=w477
+
+## 惊蛰无声
+https://pan.baidu.com/s/1V0gJWdSrgsoJbTu2BPgyvg?pwd=xsda
+
+## 一个男人和一个女人
+https://pan.baidu.com/s/1VlH3ia_exTKxIRVWXqLpTQ?pwd=hefr
+
+## 卧底神探
+https://pan.baidu.com/s/1LUOHXYle1D1eHLqRb1KUpg?pwd=kbpy
+
 # 电视剧
 ## 寻秦记
 https://pan.baidu.com/s/1_b0-kep5BiKAInc-0x5xiQ?pwd=rttw
@@ -276,6 +306,18 @@ https://pan.baidu.com/s/1kqXDAAtbdwgHnOY3oeUQDw?pwd=jyey
 
 ## 八千里路云和月
 https://pan.baidu.com/s/1PlrKhRIyXUgj5O9ZanjKsA?pwd=11qw
+
+## 余罪 第一季
+https://pan.baidu.com/s/1LoQFYb64gkJYgZkbzuVRDA?pwd=epc6
+
+## 余罪 第二季
+https://pan.baidu.com/s/1UbIRKCuEU0cGv925F0AnOg?pwd=fbkv
+
+## 渗透
+https://pan.baidu.com/s/1H9PB3J2Mop-0veUVkRnGQA?pwd=g5i2
+
+## 主角
+https://pan.baidu.com/s/1VGzJhy7GLvzuXVR6d_h_YA?pwd=avz4
 
 # 学习资料
 ## 机器人SLAM导航：核心技术与实战（课件&教学视频）
