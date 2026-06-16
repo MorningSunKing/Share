@@ -202,6 +202,12 @@ https://pan.baidu.com/s/1VlH3ia_exTKxIRVWXqLpTQ?pwd=hefr
 ## 卧底神探
 https://pan.baidu.com/s/1LUOHXYle1D1eHLqRb1KUpg?pwd=kbpy
 
+## 镖人：风起大漠-国语
+https://pan.baidu.com/s/1OFiZr99Nd_sf9JQvX7eOrA?pwd=aa2u
+
+## 镖人：风起大漠-粤语
+https://pan.baidu.com/s/1WFSu8pPk93sqfh88Ei8c0Q?pwd=4w8w
+
 # 电视剧
 ## 寻秦记
 https://pan.baidu.com/s/1_b0-kep5BiKAInc-0x5xiQ?pwd=rttw
