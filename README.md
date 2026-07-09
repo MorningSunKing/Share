@@ -328,6 +328,20 @@ https://pan.baidu.com/s/1H9PB3J2Mop-0veUVkRnGQA?pwd=g5i2
 ## 主角
 https://pan.baidu.com/s/1VGzJhy7GLvzuXVR6d_h_YA?pwd=avz4
 
+## 猎罪图鉴
+https://pan.baidu.com/s/1ZsSFw2u4WzTQSWPbkWvKdg?pwd=mchv
+
+## 猎罪图鉴2
+https://pan.baidu.com/s/1aLo-07qW9C73jniQbmYEmA?pwd=hssc
+
+## 好好的时光
+https://pan.baidu.com/s/10QXx5jFVqWDexa_lZgUUuw?pwd=napn
+
+## 鹿鼎记
+https://pan.baidu.com/s/1xBCwweeFQSU7dTRonfZ0dA?pwd=ndd7
+
+## 笑傲江湖
+https://pan.baidu.com/s/1nHTYM1l50dPZowwPsMKhlQ?pwd=hpnx
 # 学习资料
 ## 机器人SLAM导航：核心技术与实战（课件&教学视频）
 https://pan.baidu.com/s/1fV8rmEDWzep_PwTeFi-I0w?pwd=3rfe
