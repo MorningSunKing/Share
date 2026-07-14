@@ -208,6 +208,12 @@ https://pan.baidu.com/s/1OFiZr99Nd_sf9JQvX7eOrA?pwd=aa2u
 ## 镖人：风起大漠-粤语
 https://pan.baidu.com/s/1WFSu8pPk93sqfh88Ei8c0Q?pwd=4w8w
 
+## 森中有林
+https://pan.baidu.com/s/10Ps0xGBQS5m80mOWUo2uPQ?pwd=jxxj
+
+## 伪钞重案
+https://pan.baidu.com/s/1wT3icNkoTuBsbwQuTIHhQw?pwd=m848
+
 # 电视剧
 ## 寻秦记
 https://pan.baidu.com/s/1_b0-kep5BiKAInc-0x5xiQ?pwd=rttw
@@ -342,6 +348,16 @@ https://pan.baidu.com/s/1xBCwweeFQSU7dTRonfZ0dA?pwd=ndd7
 
 ## 笑傲江湖
 https://pan.baidu.com/s/1nHTYM1l50dPZowwPsMKhlQ?pwd=hpnx
+
+## 人间正道是沧桑
+https://pan.baidu.com/s/1M5iybNDMqqsuyekR0Bk0dg?pwd=a6by
+
+## 不要和陌生人说话
+https://pan.baidu.com/s/13WnZYcWOTeDXaGt1RMR9yA?pwd=7i4j
+
+## 绝代双骄台视版
+https://pan.baidu.com/s/1H3MeSTzKU4qZeomhgdOWDA?pwd=mrb8
+
 # 学习资料
 ## 机器人SLAM导航：核心技术与实战（课件&教学视频）
 https://pan.baidu.com/s/1fV8rmEDWzep_PwTeFi-I0w?pwd=3rfe
