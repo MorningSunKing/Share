@@ -214,6 +214,9 @@ https://pan.baidu.com/s/10Ps0xGBQS5m80mOWUo2uPQ?pwd=jxxj
 ## 伪钞重案
 https://pan.baidu.com/s/1wT3icNkoTuBsbwQuTIHhQw?pwd=m848
 
+## 火遮眼
+https://pan.baidu.com/s/1E-3WFArOEzAXTPuhVeifeA?pwd=zc7m
+
 # 电视剧
 ## 寻秦记
 https://pan.baidu.com/s/1_b0-kep5BiKAInc-0x5xiQ?pwd=rttw
