@@ -367,6 +367,9 @@ https://pan.baidu.com/s/13WnZYcWOTeDXaGt1RMR9yA?pwd=7i4j
 ## 绝代双骄台视版
 https://pan.baidu.com/s/1H3MeSTzKU4qZeomhgdOWDA?pwd=mrb8
 
+## 跨过鸭绿江
+https://pan.baidu.com/s/14kmbvr7xTthu9SGEXh6aeA?pwd=j3wp
+
 # 学习资料
 ## 机器人SLAM导航：核心技术与实战（课件&教学视频）
 https://pan.baidu.com/s/1fV8rmEDWzep_PwTeFi-I0w?pwd=3rfe
