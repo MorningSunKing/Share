@@ -370,6 +370,18 @@ https://pan.baidu.com/s/1H3MeSTzKU4qZeomhgdOWDA?pwd=mrb8
 ## 跨过鸭绿江
 https://pan.baidu.com/s/14kmbvr7xTthu9SGEXh6aeA?pwd=j3wp
 
+## 倚天剑屠龙刀
+https://pan.baidu.com/s/1EC7mkvv4NU_OsrmUz8nXEg?pwd=mmuw
+
+## 殭屍道長
+https://pan.baidu.com/s/1q1rj3OGBtJLhPpXDVcXXow?pwd=tcxx
+
+## 神雕侠侣古天乐版
+https://pan.baidu.com/s/1V_vH8rrtNp6RC7fUhIX55A?pwd=qwpc
+
+## 西游记
+https://pan.baidu.com/s/17KpKcxOUa6QaXHQlcueTcA?pwd=wpe2
+
 # 学习资料
 ## 机器人SLAM导航：核心技术与实战（课件&教学视频）
 https://pan.baidu.com/s/1fV8rmEDWzep_PwTeFi-I0w?pwd=3rfe
