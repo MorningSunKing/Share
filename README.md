@@ -223,6 +223,15 @@ https://pan.baidu.com/s/1cxoDa4lmTiYPdlBkKUAuGQ?pwd=xa2k
 ## 不留活口
 https://pan.baidu.com/s/1SOmcJYdA_HxhVATBJ17Klg?pwd=f6ea
 
+## 消失的人
+https://pan.baidu.com/s/148dWGOvU3s51nrAqc_Mhmg?pwd=9exh
+
+## 寒战1994国语
+https://pan.baidu.com/s/1_m-wDK_CmAVSfY8Pqfarlw?pwd=xmy9
+
+## 寒战1994粤语
+https://pan.baidu.com/s/1U2TuRBou25s9Z8db5Zx3kw?pwd=uc8g
+
 # 电视剧
 ## 寻秦记
 https://pan.baidu.com/s/1_b0-kep5BiKAInc-0x5xiQ?pwd=rttw
