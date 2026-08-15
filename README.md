@@ -1,6 +1,9 @@
 # 欢迎扫码关注
 ![Image text](./微信二维码.jpg)
 
+# 电子书
+| 交易圣经 | [百度网盘](https://pan.baidu.com/s/1QYS5m9Shzer2Bwo23cj72A?pwd=smke)  | [夸克网盘](https://pan.quark.cn/s/03f0ebb56cc0?pwd=EV22) |
+
 # 游戏
 ## 英雄连2勇气传说
 https://pan.baidu.com/s/1ARbkh0HVVZoN6H-SougP6g?pwd=2e38
