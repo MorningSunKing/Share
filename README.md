@@ -4,11 +4,19 @@
 # 电子书
 |书名|百度网盘下载|夸克网盘下载|
 |----|----|----|
-| 交易圣经                   | [百度网盘](https://pan.baidu.com/s/1QYS5m9Shzer2Bwo23cj72A?pwd=smke)  | [夸克网盘](https://pan.quark.cn/s/03f0ebb56cc0?pwd=EV22) |
-| 金融怪杰：华尔街的顶级交易员 | [百度网盘](https://pan.baidu.com/s/1bFiTO10xPzRxt6lU-FLuGQ?pwd=8bjp)  | [夸克网盘](https://pan.quark.cn/s/9b05f22d9cbc?pwd=NLVx) |
-
-
-
+|交易圣经|[百度网盘](https://pan.baidu.com/s/1QYS5m9Shzer2Bwo23cj72A?pwd=smke)|[夸克网盘](https://pan.quark.cn/s/03f0ebb56cc0?pwd=EV22)|
+|金融怪杰：华尔街的顶级交易员|[百度网盘](https://pan.baidu.com/s/1bFiTO10xPzRxt6lU-FLuGQ?pwd=8bjp)|[夸克网盘](https://pan.quark.cn/s/9b05f22d9cbc?pwd=NLVx)|
+|认识投资（原书第10版）|[百度网盘](https://pan.baidu.com/s/1I_4sRf-yOROFo-TJCEtTzQ?pwd=hpr6)|[夸克网盘](https://pan.quark.cn/s/ebb6b1526dfd?pwd=ddyG)|
+|打开量化投资的黑箱（原书第2版）|[百度网盘](https://pan.baidu.com/s/1JHTxjglAKnThr-l1Uzgkfw?pwd=8vr5)|[夸克网盘](https://pan.quark.cn/s/88dd2b24897f?pwd=BFm4)|
+|股票投资三部曲|[百度网盘](https://pan.baidu.com/s/1VQqIoDH0vEbNOLTxbv0pfQ?pwd=c6et)|[夸克网盘](https://pan.quark.cn/s/014daf7a7ea1?pwd=uzbG)|
+|庆余年（精校版）|[百度网盘](https://pan.baidu.com/s/1AuSrRMZwpIakvV9ZhOwf3Q?pwd=x9zv)|[夸克网盘](https://pan.quark.cn/s/f465db8f66ce?pwd=6zhZ)|
+|康熙大帝（全四册）|[百度网盘](https://pan.baidu.com/s/1ZE0AGy5mST7DMec3SUtngQ?pwd=ujah)|[夸克网盘](https://pan.quark.cn/s/b6bc9e74a91f?pwd=cbHe)|
+|乾隆皇帝（全六册）|[百度网盘](https://pan.baidu.com/s/18iXFeynaF0v8YlzI1ivThw?pwd=ae5u)|[夸克网盘](https://pan.quark.cn/s/9426ea593c93?pwd=mpv9)|
+|华尔街教父格雷厄姆传|[百度网盘](https://pan.baidu.com/s/1_PiVz6LQ69UTftjmXC51KQ?pwd=nhhe)|[夸克网盘](https://pan.quark.cn/s/58f5d18fe15e?pwd=JSN8)|
+|交易冠军|[百度网盘](https://pan.baidu.com/s/1YDXgwK_6uBvluSIwwhHukQ?pwd=uir5)|[夸克网盘](https://pan.quark.cn/s/1f7f4e5d1a91?pwd=qLYN)|
+|韭菜的自我修养（增订版）|[百度网盘](https://pan.baidu.com/s/1Okovh88__oLqgqD9Xdxaag?pwd=2z12)|[夸克网盘](https://pan.quark.cn/s/969a78fb31dc?pwd=rbVB)|
+|富爸爸系列全集（套装共32册）|[百度网盘](https://pan.baidu.com/s/1F-GCjaPGPfKZg5R_pAkA5w?pwd=6e1b)|[夸克网盘](https://pan.quark.cn/s/ddffb0e36305?pwd=asBL)|
+|圆圈正义|[百度网盘](https://pan.baidu.com/s/12LRl9tdx7IiMMpx0dcMYYA?pwd=u4if)|[夸克网盘](https://pan.quark.cn/s/e78806ccbfe8?pwd=Ziik)|
 
 # 游戏
 ## 英雄连2勇气传说
