@@ -2,7 +2,9 @@
 ![Image text](./微信二维码.jpg)
 
 # 电子书
-| 交易圣经 | [百度网盘](https://pan.baidu.com/s/1QYS5m9Shzer2Bwo23cj72A?pwd=smke)  | [夸克网盘](https://pan.quark.cn/s/03f0ebb56cc0?pwd=EV22) |<br>
+|书名|百度网盘下载|夸克网盘下载|
+|----|----|----|
+| 交易圣经                   | [百度网盘](https://pan.baidu.com/s/1QYS5m9Shzer2Bwo23cj72A?pwd=smke)  | [夸克网盘](https://pan.quark.cn/s/03f0ebb56cc0?pwd=EV22) |
 | 金融怪杰：华尔街的顶级交易员 | [百度网盘](https://pan.baidu.com/s/1bFiTO10xPzRxt6lU-FLuGQ?pwd=8bjp)  | [夸克网盘](https://pan.quark.cn/s/9b05f22d9cbc?pwd=NLVx) |
 
 
