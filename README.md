@@ -232,6 +232,15 @@ https://pan.baidu.com/s/1_m-wDK_CmAVSfY8Pqfarlw?pwd=xmy9
 ## 寒战1994粤语
 https://pan.baidu.com/s/1U2TuRBou25s9Z8db5Zx3kw?pwd=uc8g
 
+## 金童_国语
+https://pan.baidu.com/s/1fkccO1wOseAJjAe0j-LXew?pwd=cqy4
+
+## 金童_粤语
+https://pan.baidu.com/s/1UF2Uj0C-3Mbx8WhKiaYpog?pwd=5y2z
+
+## 欢迎再次登录
+https://pan.baidu.com/s/1hwX9pti4qoOv4o4sCgBrCg?pwd=9p3k
+
 # 电视剧
 ## 寻秦记
 https://pan.baidu.com/s/1_b0-kep5BiKAInc-0x5xiQ?pwd=rttw
