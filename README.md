@@ -17,6 +17,14 @@
 |韭菜的自我修养（增订版）|[百度网盘](https://pan.baidu.com/s/1Okovh88__oLqgqD9Xdxaag?pwd=2z12)|[夸克网盘](https://pan.quark.cn/s/969a78fb31dc?pwd=rbVB)|
 |富爸爸系列全集（套装共32册）|[百度网盘](https://pan.baidu.com/s/1F-GCjaPGPfKZg5R_pAkA5w?pwd=6e1b)|[夸克网盘](https://pan.quark.cn/s/ddffb0e36305?pwd=asBL)|
 |圆圈正义|[百度网盘](https://pan.baidu.com/s/12LRl9tdx7IiMMpx0dcMYYA?pwd=u4if)|[夸克网盘](https://pan.quark.cn/s/e78806ccbfe8?pwd=Ziik)|
+|以交易为生（珍藏版）|[百度网盘](https://pan.baidu.com/s/1lb1RhQ68JKRY2N1GTcj6JQ?pwd=2w8m)|[夸克网盘](https://pan.quark.cn/s/b6b085326efe?pwd=fGuc)|
+|以交易为生Ⅱ|[百度网盘](https://pan.baidu.com/s/1icUZd95MKXmn8K0gw_KS-w?pwd=1cyr)|[夸克网盘](https://pan.quark.cn/s/73504b5707ee?pwd=R5eZ)|
+|我如何从股市赚了200万（珍藏版）|[百度网盘](https://pan.baidu.com/s/1Dxrfx-kUVY7DkBJDnPXsBg?pwd=eibf)|[夸克网盘](https://pan.quark.cn/s/a62cc665c83c?pwd=aadk)|
+|30天精读MBA（套装共3册）|[百度网盘](https://pan.baidu.com/s/17W7sR5xhRDqMDafFMuPJXg?pwd=f7dx)|[夸克网盘](https://pan.quark.cn/s/c287d58409e4?pwd=Ctqe)|
+|征服市场的人：西蒙斯传|[百度网盘](https://pan.baidu.com/s/1csBmucvfwtdpylUq0NKTFw?pwd=v7ke)|[夸克网盘](https://pan.quark.cn/s/d360d5c0de41?pwd=tJ1e)|
+|本事：应对未来世界的12项永久技能|[百度网盘](https://pan.baidu.com/s/1YOT10Io3HYk32tXk9zLnhQ?pwd=g2va)|[夸克网盘](https://pan.quark.cn/s/43357a43eff4?pwd=rFJk)|
+|钱：7步创造终身收入|[百度网盘](https://pan.baidu.com/s/1u9YABiXNAVQjZuSBy6xreg?pwd=4aj9)|[夸克网盘](https://pan.quark.cn/s/508d2668b6be?pwd=hguQ)|
+|有钱人和你想的不一样|[百度网盘](https://pan.baidu.com/s/18EKwgiLwywAVJ_WT38yPzw?pwd=5ci6)|[夸克网盘](https://pan.quark.cn/s/ddc3714c8cec?pwd=826c)|
 
 # 游戏
 ## 英雄连2勇气传说
