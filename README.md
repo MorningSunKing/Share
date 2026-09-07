@@ -266,6 +266,18 @@ https://pan.baidu.com/s/1UF2Uj0C-3Mbx8WhKiaYpog?pwd=5y2z
 ## 欢迎再次登录
 https://pan.baidu.com/s/1hwX9pti4qoOv4o4sCgBrCg?pwd=9p3k
 
+## 寂静的朋友
+https://pan.baidu.com/s/1xtxUm-Sz89fVmf_a9Y7PEQ?pwd=4ijw
+
+## 抓特务
+https://pan.baidu.com/s/1FH4vr2M4axRguEP5Wgr94A?pwd=bfmu
+
+## 我看见两朵一样的云
+https://pan.baidu.com/s/1JeSZdRECH5j7Si7CPQ0zlw?pwd=dqi9
+
+## 特立独行
+https://pan.baidu.com/s/18grmxjvVzgjnp8hruHyq0A?pwd=f8cz
+
 # 电视剧
 ## 寻秦记
 https://pan.baidu.com/s/1_b0-kep5BiKAInc-0x5xiQ?pwd=rttw
@@ -424,6 +436,9 @@ https://pan.baidu.com/s/1V_vH8rrtNp6RC7fUhIX55A?pwd=qwpc
 
 ## 西游记
 https://pan.baidu.com/s/17KpKcxOUa6QaXHQlcueTcA?pwd=wpe2
+
+## 绝代双骄台视版
+https://pan.baidu.com/s/1YLHDDfUkfpupajbnpaY0NA?pwd=rspb
 
 # 学习资料
 ## 机器人SLAM导航：核心技术与实战（课件&教学视频）
