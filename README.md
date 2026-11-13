@@ -25,6 +25,7 @@
 |本事：应对未来世界的12项永久技能|[百度网盘](https://pan.baidu.com/s/1YOT10Io3HYk32tXk9zLnhQ?pwd=g2va)|[夸克网盘](https://pan.quark.cn/s/43357a43eff4?pwd=rFJk)|
 |钱：7步创造终身收入|[百度网盘](https://pan.baidu.com/s/1u9YABiXNAVQjZuSBy6xreg?pwd=4aj9)|[夸克网盘](https://pan.quark.cn/s/508d2668b6be?pwd=hguQ)|
 |有钱人和你想的不一样|[百度网盘](https://pan.baidu.com/s/18EKwgiLwywAVJ_WT38yPzw?pwd=5ci6)|[夸克网盘](https://pan.quark.cn/s/ddc3714c8cec?pwd=826c)|
+|网文写作变现|[百度网盘](https://pan.baidu.com/s/1p73-XJbmr81mX8exbxJUZg?pwd=1w2u)|[夸克网盘](https://pan.quark.cn/s/1a4ac724ddef?pwd=YRb8)|
 
 # 游戏
 ## 英雄连2勇气传说
